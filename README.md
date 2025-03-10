@@ -3,6 +3,7 @@
 
 
 Kocham szlugi
+
 ![real2](https://github.com/user-attachments/assets/82b0b9cd-0226-4d15-85aa-2d0f9a49929d)
 
 
