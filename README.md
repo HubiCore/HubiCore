@@ -3,8 +3,10 @@
 
 
 Kocham szlugi
+![real2](https://github.com/user-attachments/assets/82b0b9cd-0226-4d15-85aa-2d0f9a49929d)
 
 
+Kocham szlugi
 <!---
 HubiCore/HubiCore is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
