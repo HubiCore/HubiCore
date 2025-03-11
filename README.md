@@ -10,7 +10,7 @@ Kocham szlugi
 Kocham szlugi
 
 
-[Polityka prywatnośći](https://github.com/user-attachments/assets/a4611f6a-a6a1-4456-acbe-98d5db4952bd)
+[Polityka_prywatnośći](https://github.com/user-attachments/assets/a4611f6a-a6a1-4456-acbe-98d5db4952bd)
 
 
 <!---
