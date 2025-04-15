@@ -5,6 +5,7 @@
 Kocham szlugi
 
 
+![real2](https://github.com/user-attachments/assets/bfc60380-5e39-4ff0-9cdd-248f4d678304)
 
 
 Kocham szlugi
