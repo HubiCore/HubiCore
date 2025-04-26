@@ -1,4 +1,4 @@
-
+Według filtra na tiktoku jestem Bombardilo Crocodilo
 
 ![real](https://github.com/user-attachments/assets/f011e5af-518c-4f85-baa3-245ac33698c1)
 
